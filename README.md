@@ -1,7 +1,4 @@
-### ***Portfolio***
-
-
-Alexander Lange
+### ***Alexander Lange: Portfolio***
 
 Versatile doc professional with focus on customers' needs:
 rapid content development, precise doc production, solid doc delivery.
